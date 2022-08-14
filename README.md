@@ -7,7 +7,7 @@ Privacy matters to everyone. Below is a detailed document detailing how your pri
 
 
 
-*Last Updated July 2022*
+*Last Updated August 2022*
 
 <br/>
 
